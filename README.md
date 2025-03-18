@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 University of Vienna <br>🌍 Bratislava, Slovakia<br>💬 Ask me about anything 
+🎓 University of Vienna <br>🌍 Vienna, Austria<br>💬 Ask me about anything 
 
 
 ## 🌐 Socials:
